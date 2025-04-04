@@ -8,6 +8,4 @@
 - 1 cuillère à café de levure chimique
 - banane
 - ggfghdg
-- carrote
-- bhdgbdhg
-- encore
+
